@@ -10,4 +10,6 @@ in insta i have around 50 followers
 and in tiktok i have id name as Ar4hman.fx
 and on tiktok i have around 150 followers
 and in tiktok i have 2 viral videos. 
-And this is my litlle overview
+and as you can see i have most followers in fb and most views there too
+so i kinda famous in there,
+And so this is my litlle overview
